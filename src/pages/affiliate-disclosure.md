@@ -14,7 +14,7 @@ These rules are designed to ensure that readers or web media viewers are aware i
 
 In compliance with the FTC guidelines, please understand the following about the links and posts on this site:
 
-Any / all links on [](https://www.bestofsoundbar.com/)www.monitorstvhub.com are affiliate links for which I get a small fee from the sale of certain items.
+Any / all links on www.monitorstvhub.com are affiliate links for which I get a small fee from the sale of certain items.
 
 ###  
 
